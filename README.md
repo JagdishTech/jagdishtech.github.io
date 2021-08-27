@@ -1,1 +1,1 @@
-# jagdishTech.github.io
+# jagdishtech.github.io
